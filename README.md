@@ -1,5 +1,5 @@
 ![Pis](https://arononak.github.io/Pis.jpg)
 
-https://rejestr.io/krs/670049/jedenslad
+# [Hop.City](https://drive.google.com/file/d/14WCe7JuXdIl31lWLAQuwjpB6n2XwpM8P)
 
-[Referencje](https://drive.google.com/file/d/14WCe7JuXdIl31lWLAQuwjpB6n2XwpM8P)
+Możliwy przejaw frustracji związanej z poczuciem odrzucenia przez społeczeństwo i kobiety. Taką hipotezę interpretacyjną wygenerował ChatGPT 😓😓😓
