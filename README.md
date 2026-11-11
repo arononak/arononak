@@ -1,3 +1,5 @@
+[Święty Batyr z Grand Hotelu](https://wiadomosci.onet.pl/kraj/wraca-sprawa-kawalerki-pana-jerzego-prokuratura-szykuje-przesluchanie-kluczowej-osoby/dx32ege) 😄
+
 ![Pis](https://arononak.github.io/Pis.jpg)
 
 # [Hop.City](https://drive.google.com/file/d/14WCe7JuXdIl31lWLAQuwjpB6n2XwpM8P)
