@@ -1,10 +1,12 @@
-[Święty Batyr z Grand Hotelu](https://wiadomosci.onet.pl/kraj/wraca-sprawa-kawalerki-pana-jerzego-prokuratura-szykuje-przesluchanie-kluczowej-osoby/dx32ege) 😄
+# Tablica chwały
 
+[Święty Batyr z Grand Hotelu](https://wiadomosci.onet.pl/kraj/wraca-sprawa-kawalerki-pana-jerzego-prokuratura-szykuje-przesluchanie-kluczowej-osoby/dx32ege) 😄
 Wobec mnie też jest taki mało rozmowny 😴
 
-![Email](https://arononak.github.io/email.jpg)
-
-![Pis](https://arononak.github.io/Pis.jpg)
+<p align="center">
+  <img src="https://arononak.github.io/Email.jpg" width="45%" style="display: inline-block; margin: 10px;" />
+  <img src="https://arononak.github.io/Pis.jpg" width="45%" style="display: inline-block; margin: 10px;" />
+</p>
 
 # [Hop.City](https://drive.google.com/file/d/14WCe7JuXdIl31lWLAQuwjpB6n2XwpM8P)
 
